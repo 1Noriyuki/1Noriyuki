@@ -1,5 +1,5 @@
 # 👋 Hello! Welcome to my Github profile.
-## My name is Enzo Terada and my nickname is "Noriyuki"!
+## My name is Enzo Terada but you can call me Noriyuki!
 
 # :raising_hand:
 - Moro em SP - São Paulo.
